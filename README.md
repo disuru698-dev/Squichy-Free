@@ -1,4 +1,4 @@
-<div align="center">
++9475 501 8014<div align="center">
 
 <a href="https://github.com/DEVPRIMIS/Squichy-Free">
   <img src="https://readme-typing-svg.demolab.com?font=Space+Grotesk&weight=700&size=34&duration=2800&pause=1000&color=2F7CFF&center=true&vCenter=true&width=650&lines=Squichy+Free;By+DsPrimis" alt="Squichy Free - By DsPrimis">
